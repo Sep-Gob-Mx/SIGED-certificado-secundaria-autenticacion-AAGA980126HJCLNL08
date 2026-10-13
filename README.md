@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AAGA980126HJCLNL08
+AAGA980126HJCLNL08
